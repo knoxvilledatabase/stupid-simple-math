@@ -67,7 +67,7 @@ My dad looked at me. I looked down and thought:
 
 The teacher paused. He's always a smartass!
 
-"Can you take a picture of nothing?"
+"Could I take a picture of nothing?"
 
 ---
 
