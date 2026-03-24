@@ -28,14 +28,6 @@ My dad sat there, jaw tight.
 
 But I continued staring at the floor. 
 
-## "He said you can't take a photo of nothing!"
-
-The teacher rolled her eyes.
-
-"But if I take a photo of nothing, how many photos do I have?"
-
-But I kept my mouth shut.
-
 ## "He thinks everything equals 1!!!"
 
 The teacher threw her hands up.
