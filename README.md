@@ -1,6 +1,6 @@
 # Stupid Simple Math
 
-*A journey through the philosophy of mathematics from the eyes of an ADHD and dyslexic child.*
+*A child quietly holding questions that turned out to be correct for 2,500 years*
 
 ---
 
